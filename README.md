@@ -1,1 +1,1 @@
-some simple projects that i started to create with the knowldges acquired in my college
+some simple projects that i started to create with the knowledges acquired in my college
